@@ -1,2 +1,2 @@
 # Personal-Blog
-Here I going to put a personal Blog about my travels around the world, (in google maps of course), and say funny facts about them
+Here I going to put a personal Blog and what ever it could fit here
